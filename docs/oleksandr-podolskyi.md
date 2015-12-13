@@ -1,6 +1,0 @@
-- Oleksandr
-- Ukraine
-- Bananas
-- Running
-- Green
-- Kyiv
